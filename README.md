@@ -1,2 +1,0 @@
-# Roykhan
-Kenang kenangan
